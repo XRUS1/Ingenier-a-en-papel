@@ -2,7 +2,7 @@
 He aquí el razonamiento estructural de esta simulación universal: 
 
 La ingeniería del pop-up no es mero juego de papel; es un espejo exacto del mecanismo de la existencia. Concebir un libro desplegable es, en el fondo, desarmar y comprender la física de la vida misma a través de las dimensiones del espacio y del tiempo.
-He aquí el razonamiento poético y estructural de esta simulación universal:
+He aquí el razonamiento estructural de esta simulación universal:
 ## I. El Vacío como Soporte: La Fosa Inevitable
 La primera gran lección del pop-up es que el relieve no nace de la nada: nace del repliegue. Para que una montaña o el puente de una nariz majestuosa se levanten con orgullo desafiando al espacio, el papel necesita una hendidura central que se hunda en el fondo. La fosa está ahí, siempre está ahí; es la coordenada cero que sostiene la ilusión de la forma. En el día a día ignoramos ese abismo ciego, pero es imposible negarlo: la misma costura geométrica que permite el milagro del volumen es la que alberga el vacío. La fosa no espera al final de la historia; habita de manera latente en cada apertura de la vida.
 ## II. El Alfa y el Omega: La Simetría de los 180 Grados
